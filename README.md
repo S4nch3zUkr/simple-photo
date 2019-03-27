@@ -1,1 +1,1 @@
-# s4nch3zukr.github.io/simple-photo
+# https://s4nch3zukr.github.io/simple-photo/
